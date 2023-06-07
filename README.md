@@ -1,1 +1,1 @@
-Hashisha
+Hashish
